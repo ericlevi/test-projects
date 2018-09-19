@@ -1,5 +1,5 @@
 # SAINT SEIYA
-## _Los Caballeros Del Zodiaco_
+## ++_Los Caballeros Del Zodiaco_++
 <br>Una serie conformada por 2 integrantes cuya Diosa es llamada **ATHENA**, la Diosa de la guerra. Ella juntos con sus caballeros defenderan al mundo de los seres malvados !
 
 - __INTEGRANTES__
